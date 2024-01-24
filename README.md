@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **fotev242@gmail.com**
 
-- ⚡ Fun fact **20 years Cave Rescue Bulgaria**
+- ⚡ Fun fact **20 years Cave Rescue Bulgaria** **15 years Gabbafreakz**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
